@@ -1,1 +1,0 @@
-# Saji_Samuel_NinjaMan_Challenge
